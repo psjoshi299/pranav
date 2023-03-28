@@ -1,2 +1,2 @@
-# pranav
-About me!
+# Hi there 👋
+
